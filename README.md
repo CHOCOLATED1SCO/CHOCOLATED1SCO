@@ -4,7 +4,7 @@
 
 <p align="center">
 
-im a pretty outgoing person, so feel free to int!
+im pretty outgoing, feel free to int plz!
 
 <p align="center">
 
